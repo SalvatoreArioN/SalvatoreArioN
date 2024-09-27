@@ -1,0 +1,2 @@
+Scripter de Apps, Marketing.
+👨🏼‍💼.
